@@ -1,1 +1,1 @@
-# blockchainmaniaVK23
+# Blockchain Mania VK23
